@@ -1,4 +1,4 @@
-# 
+# Personnalisé TreeSize modules complémentaires pour Mac OS | Intelligent TreeSize modules complémentaires pour PC Windows. Avec conversion de formats et suppression de fichiers temporaires — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
